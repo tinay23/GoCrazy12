@@ -4,3 +4,8 @@ of my lungs because I thought he was dead, but he was still alive I picked
 him up crying and my dad decided to call it a day and took me home bcs I 
 was really upset after what happened.So yeah he means a lot to me and is 
 very important to me.  
+
+current path:  /Users/student/Desktop/YanitProject/what_is_important_to_you
+previous path:  /Users/student/Desktop/YanitProject/Screenshots
+next path:  /Users/student/Desktop/YanitProject/Where_are_you_going
+
